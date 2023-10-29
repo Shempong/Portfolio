@@ -1,1 +1,1 @@
-Live action.. https://Shempong.github.io/Portfolio/
+Live action - https://Shempong.github.io/Portfolio/
